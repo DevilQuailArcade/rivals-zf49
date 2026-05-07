@@ -1,4 +1,4 @@
-
+Experience rivals like never before with rare rivals Scripts, the #1 Script. Includes aimbot and unlimited stamina for unbeatable performance.
 
 
 
